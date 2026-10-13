@@ -1,0 +1,2 @@
+# premium-paperweight-making-001-glass-paperweight-making-mil
+Tired of paperweights that look like everyone else's? Master the ancient art of millefiori to create stunning, one-of-a-kind glass masterpieces that turn heads.  This studio gives you the exact blueprint to craft intricate millefiori paperweights, even if you've never worked with glass before. No guesswork, no expensive trial and error — just clear
